@@ -12,7 +12,7 @@ Dedicated to delivering robust and automated testing frameworks that improve qua
 
 📧 Email: ravrommelbanaag@gmail.com  
 🐱 GitHub: [banaagravrommel](https://github.com/banaagravrommel)  
-💼 Upwork: Upwork  
+💼 Upwork: [banaagravrommel]([https://github.com/banaagravrommel](https://www.upwork.com/freelancers/~0123456789abcdef))    
 
 ---
 
